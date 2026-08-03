@@ -1,1 +1,1 @@
-(mr robot) [https://nairobi.saymyname.website/Series/M/Mr.%20Robot/S01/720p%20%20BluRay%20%20AAC%202CH%20%20x265%20%2010bit%20%20PSA/Mr.Robot.S01E01.720p.10bit.BluRay.2CH.x265.HEVC.PSA.mkv]
+https://nairobi.saymyname.website/Series/M/Mr.%20Robot/S01/720p%20%20BluRay%20%20AAC%202CH%20%20x265%20%2010bit%20%20PSA/Mr.Robot.S01E01.720p.10bit.BluRay.2CH.x265.HEVC.PSA.mkv
